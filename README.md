@@ -1,2 +1,2 @@
 # Firstone
-To learn <br> Tanjiro
+To learn <br> Tanjiro Kamado
